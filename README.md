@@ -1,1 +1,0 @@
-# Para-powerlifting-2026
